@@ -1,4 +1,4 @@
-# HectorMarioSanchez.xyz
+# HectorMarioSanchez (punto) XYZ
 
 Éste es mi CV que tenía publicado en un servicio gratuito de hosting, pero que misteriosamente desapareció...
 
